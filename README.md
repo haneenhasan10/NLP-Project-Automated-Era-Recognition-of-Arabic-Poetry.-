@@ -1,0 +1,1 @@
+# NLP-Project-Automated-Era-Recognition-of-Arabic-Poetry.-
